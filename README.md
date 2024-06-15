@@ -1,2 +1,0 @@
-# januariopinto.com
-januariopinto.com
